@@ -1,0 +1,1 @@
+# Capacita-o-em-Core-5G
